@@ -7,5 +7,5 @@
 </p>
 
 <p align="center">
-𝜗𝜚ㅤㅤㅤdark and pro shipper! ㅤ( ˃ ᜊ ˂ )
+۶𝜚 ㅤ.ㅤㅤdark and pro shipperㅤ( ˏˏ˃ ㅁ ˂ˏˏ )  ! 
 </p>
