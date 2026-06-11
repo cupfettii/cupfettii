@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="Tumblr_l_1293602103167202.gif" width="100%">
+  <img src="Tumblr_l_1293602103167202.gif" width="600%">
 </p>
 
 <p align="center">
