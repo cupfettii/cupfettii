@@ -10,5 +10,5 @@
 ۶𝜚 ㅤ.ㅤㅤdark and pro shipperㅤ( ˏˏ˃ ㅁ ˂ˏˏ )  ! 
 </p>
 <p align="center">
-french ㅤ◞ㅤ english 
+french ㅤˏ◞ㅤ english 
 </p>
