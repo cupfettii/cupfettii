@@ -1,9 +1,9 @@
 <p align="center">
-  <img src="Tumblr_l_1293602103167202.gif" width="600%">
+  <img src="Tumblr_l_1293602103167202.gif" width="600">
 </p>
 
 <p align="center">
-  <img src="ezgif-406644e25f73461a.gif" width="500%">
+  <img src="ezgif-406644e25f73461a.gif" width="500">
 </p>
 
 <p align="center">
