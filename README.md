@@ -2,7 +2,9 @@
   <img src="Tumblr_l_1293602103167202.gif" width="600">
 </p>
 <p align="center">
-art was not made by me !!! 
+<p align="center">
+  <a href="https://github.com/lermamay1104-hue">my dear ‹3</a>
+</p>
 </p>
 <p align="center">
   <img src="ezgif-406644e25f73461a.gif" width="650">
