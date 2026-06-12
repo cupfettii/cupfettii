@@ -3,7 +3,7 @@
 </p>
 <p align="center">
 <p align="center">
-  <a href="https://github.com/lermamay1104-hue">my dear ‹3</a>
+  <a href="https://github.com/lermamay1104-hue">բσℓℓσա mყ ԃᥱᥲr ‹3</a>
 </p>
 </p>
 <p align="center">
