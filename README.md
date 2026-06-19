@@ -9,9 +9,6 @@
 <p align="center">
   <img src="ezgif-48ae0b1eee884205.gif" width="650">
 </p>
-<p align="center">
-۶𝜚 ㅤ.ㅤㅤძαrƙ αᥒძ ⍴ɾσsні⍴⍴ᥱrㅤ( ˏˏ˃ ㅁ ˂ˏˏ )  ! 
-</p>
-<p align="center">
-𝖿rᥱᥒᥴh ㅤˏ◞ㅤ ᥱᥒցℓιѕн
-</p>
+<a href="https://cupfettii.atabook.org/">
+  <img src="https://ezgif-4515bca37967603b.gif" alt="AtaBook" width="250">
+</a>
