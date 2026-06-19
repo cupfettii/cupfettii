@@ -9,6 +9,8 @@
 <p align="center">
   <img src="ezgif-48ae0b1eee884205.gif" width="650">
 </p>
-<a href="https://cupfettii.atabook.org/">
-  <img src="./ezgif-4515bca37967603b.gif" alt="AtaBook" width="250">
-</a>
+<p align="center">
+  <a href="https://cupfettii.atabook.org/">
+    <img src="ezgif-4515bca37967603b.gif" alt="AtaBook" width="250">
+  </a>
+</p>
