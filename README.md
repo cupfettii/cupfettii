@@ -7,7 +7,7 @@
 </p>
 </p>
 <p align="center">
-  <img src="ezgif-406644e25f73461a.gif" width="650">
+  <img src="ezgif-48ae0b1eee884205.gif" width="650">
 </p>
 <p align="center">
 ۶𝜚 ㅤ.ㅤㅤძαrƙ αᥒძ ⍴ɾσsні⍴⍴ᥱrㅤ( ˏˏ˃ ㅁ ˂ˏˏ )  ! 
