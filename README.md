@@ -11,6 +11,6 @@
 </p>
 <p align="center">
   <a href="https://cupfettii.atabook.org/">
-    <img src="ezgif-1995c816c5987d84.gif" alt="AtaBook" width="500">
+    <img src="ezgif-1995c816c5987d84.gif" alt="AtaBook" width="350">
   </a>
 </p>
