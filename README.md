@@ -10,14 +10,12 @@
   <img src="ezgif-48ae0b1eee884205.gif" width="650">
 </p>
 <p align="center">
-  <a href="https://cupfettii.atabook.org/">
-    <img src="ezgif-3cd33585ef3b9aad.gif" alt="AtaBook" width="350">
+  <a href="https://cupfetti.straw.page">
+    <img src="ezgif-39ddd631b18982f6.gif" width="180" alt="Strawpage">
   </a>
-</p>
 
-<p align="center">
-  <a href="https://cupfettii.straw.page">
-    <img src="ezgif-39ddd631b18982f6.gif" alt="Strawpage" width="250">
+  <a href="https://cupfettii.atabook.org">
+    <img src="ezgif-3cd33585ef3b9aad.gif" width="180" alt="AtaBook">
   </a>
 </p>
 <p align="center">
