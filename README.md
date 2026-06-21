@@ -11,10 +11,10 @@
 </p>
 <p align="center">
   <a href="https://cupfettii.straw.page">
-    <img src="ezgif-39ddd631b18982f6.gif" width="200" alt="Strawpage">
+    <img src="ezgif-39ddd631b18982f6.gif" width="230" alt="Strawpage">
   </a>
   <a href="https://cupfettii.atabook.org">
-    <img src="ezgif-3cd33585ef3b9aad.gif" width="200" alt="AtaBook">
+    <img src="ezgif-3cd33585ef3b9aad.gif" width="230" alt="AtaBook">
   </a>
 </p>
 <p align="center">
