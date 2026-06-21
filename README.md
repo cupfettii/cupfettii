@@ -14,9 +14,10 @@
     <img src="ezgif-3cd33585ef3b9aad.gif" alt="AtaBook" width="350">
   </a>
 </p>
+
 <p align="center">
-  <a href="https://cupfettii.atabook.org/" target="_blank">
-    <img src="ezgif-39ddd631b18982f6.gif" alt="AtaBook" width="350">
+  <a href="https://cupfettii.straw.page">
+    <img src="ezgif-39ddd631b18982f6.gif" alt="Strawpage" width="250">
   </a>
 </p>
 <p align="center">
