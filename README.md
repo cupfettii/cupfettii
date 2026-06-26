@@ -2,7 +2,6 @@
   <img src="Tumblr_l_1293602103167202.gif" width="600">
 </p>
 <p align="center">
-<p align="center">
   <a href="https://github.com/lermamay1104-hue">σᥒᥱ σբ mყ αԃσɾαвℓᥱ բσℓℓσωᥱr ‹3</a>
 </p>
 </p>
