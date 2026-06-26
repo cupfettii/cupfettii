@@ -2,8 +2,8 @@
   <img src="Tumblr_l_1293602103167202.gif" width="600">
 </p>
 <p align="center">
-  <a href="https://github.com/lermamay1104-hue">◞    𝗀𝗈 𝖼𝗁𝖾𝖼𝗄</a>&nbsp<a
-href="https://github.com/bloominqton">𝗍𝗁𝖾𝗌𝖾 𝖼𝗎𝗍𝗂𝖾𝗌!   ❤︎</a>
+  <a href="https://github.com/lermamay1104-hue">◞ㅤㅤ𝗀𝗈 𝖼𝗁𝖾𝖼𝗄</a>&nbsp<a
+href="https://github.com/bloominqton">𝗍𝗁𝖾𝗌𝖾 𝖼𝗎𝗍𝗂𝖾𝗌!ㅤㅤ❤︎</a>
 </p>
 <p align="center">
   <img src="ezgif-48ae0b1eee884205.gif" width="650">
