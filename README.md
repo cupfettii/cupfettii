@@ -2,8 +2,8 @@
   <img src="Tumblr_l_1293602103167202.gif" width="600">
 </p>
 <p align="center">
-  <a href="https://github.com/lermamay1104-hue">σᥒᥱ σբ mყ αԃσɾαвℓᥱ բσℓℓσωᥱr ‹3</a>
-</p>
+  <a href="https://github.com/lermamay-hue1104">𝗍𝖾𝗌𝗍 </a>  <a
+href="https://github.com/bloominqton">𝗍𝖾𝗌𝗍</a>
 </p>
 <p align="center">
   <img src="ezgif-48ae0b1eee884205.gif" width="650">
