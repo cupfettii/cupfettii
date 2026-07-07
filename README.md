@@ -6,14 +6,14 @@
 href="https://github.com/bloominqton">𝖼𝗎𝗍𝗂𝘦 2ㅤㅤ❤︎</a>
 </p>
 <p align="center">
-  <img src="ezgif-48ae0b1eee884205.gif" width="650">
+  <img src="ezgif-89f140ba40d00bc4.gif" width="650">
 </p>
 <p align="center">
   <a href="https://cupfettii.straw.page">
-    <img src="ezgif-39ddd631b18982f6.gif" width="230" alt="Strawpage">
+    <img src="Sans titre 195_20260707223555.png" width="230" alt="Strawpage">
   </a>
   <a href="https://cupfettii.atabook.org">
-    <img src="ezgif-3cd33585ef3b9aad.gif" width="230" alt="AtaBook">
+    <img src="Sans titre 195_20260707223451.png" width="230" alt="AtaBook">
   </a>
 </p>
 <p align="center">
