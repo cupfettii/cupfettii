@@ -6,7 +6,7 @@
 href="https://github.com/bloominqton">𝖼𝗎𝗍𝗂𝘦 2ㅤㅤ❤︎</a>
 </p>
 <p align="center">
-  <img src="ezgif-89f140ba40d00bc4.gif" width="650">
+  <img src="ezgif-8bde90cd59927abc.gif" width="650">
 </p>
 <p align="center">
   <a href="https://cupfettii.straw.page">
