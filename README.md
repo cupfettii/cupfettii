@@ -4,7 +4,6 @@
 <p align="center">
   <a href="https://github.com/lermamay1104-hue">❤︎ㅤㅤ𝖼𝗎𝗍𝗂𝘦 1</a>&nbsp<a
 href="https://github.com/bloominqton">𝖼𝗎𝗍𝗂𝘦 2ㅤㅤ❤︎</a>
-</p>
 <p align="center">
   <img src="Sans titre 193_20260707233344.png" width="650">
 </p>
