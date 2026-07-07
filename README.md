@@ -1,7 +1,4 @@
 <p align="center">
-  <img src="Tumblr_l_1293602103167202.gif" width="400">
-</p>
-<p align="center">
   <img src="Sans titre 193_20260707233344.png" width="650">
 </p>
 <p align="center">
