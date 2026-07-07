@@ -2,9 +2,6 @@
   <img src="Tumblr_l_1293602103167202.gif" width="400">
 </p>
 <p align="center">
-  <a href="https://github.com/lermamay1104-hue">❤︎ㅤㅤ𝖼𝗎𝗍𝗂𝘦 1</a>&nbsp<a
-href="https://github.com/bloominqton">𝖼𝗎𝗍𝗂𝘦 2ㅤㅤ❤︎</a>
-<p align="center">
   <img src="Sans titre 193_20260707233344.png" width="650">
 </p>
 <p align="center">
@@ -17,3 +14,6 @@ href="https://github.com/bloominqton">𝖼𝗎𝗍𝗂𝘦 2ㅤㅤ❤︎</a>
   <a href="https://cupfettii.atabook.org">
     <img src="Sans titre 195_20260707223451.png" width="150" alt="AtaBook">
   </a>
+<p align="center">
+  <a href="https://github.com/lermamay1104-hue">go check </a>&nbsp<a
+href="https://github.com/bloominqton">their profiles !</a>
