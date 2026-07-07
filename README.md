@@ -13,4 +13,4 @@
   </a>
 <p align="center">
 <a href="https://github.com/lermamay1104-hue">ㅤ.ㅤ𝗆𝗒 𝖼𝗎𝗍𝖾 𝗈𝗈𝗆𝖿ㅤㅤ</a>&nbsp<a
-href="https://github.com/bloominqton"> .ㅤ𝖺 𝖿𝖺𝗍 𝖼𝗁𝗎𝖽, 𝗍𝗌𝗄..!ㅤ♡ </a>
+href="https://github.com/bloominqton"> .ㅤ𝖺 𝖿𝖺𝗍 𝖼𝗁𝗎𝖽 𝖻𝗎𝗍 𝖼𝗎𝗍𝖾 </a>
