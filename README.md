@@ -12,5 +12,5 @@
     <img src="Sans titre 195_20260707223451.png" width="100" alt="AtaBook">
   </a>
 <p align="center">
-  <a href="https://github.com/lermamay1104-hue">go check </a>&nbsp<a
-href="https://github.com/bloominqton">their profiles !</a>
+<a href="https://github.com/lermamay1104-hue"> .  𝗆𝗒 𝖼𝗎𝗍𝖾 𝗈𝗈𝗆𝖿 </a>&nbsp<a
+href="https://github.com/bloominqton"> . 𝗆𝗒 𝖼𝗁𝗎𝖻𝖻𝗒 𝖼𝗁𝗎𝖽   ♡ </a>
