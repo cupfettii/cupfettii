@@ -6,10 +6,10 @@
 </p>
 <p align="center">
   <a href="https://cupfettii.straw.page">
-    <img src="Sans titre 207_20260712032831.png" width="100" alt="Strawpage">
+    <img src="Sans titre 207_20260712033240.png" width="100" alt="Strawpage">
   </a>
   <a href="https://cupfettii.atabook.org">
-    <img src="Sans titre 207_20260712032847.png" width="100" alt="AtaBook">
+    <img src="Sans titre 207.png" width="100" alt="AtaBook">
   </a>
 <p align="center">
 <a href="https://github.com/lermamay1104-hue">ㅤ𝗀𝗈 𝖼𝗁𝖾𝖼𝗄 </a>&nbsp<a
