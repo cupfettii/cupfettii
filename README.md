@@ -1,4 +1,7 @@
 <p align="center">
+  art was made by me ꉂ ꉂ ( ᵔ ᗜ ᵔ ◍ )
+</p>
+<p align="center">
   <img src="Sans titre 206_20260712031641.png" width="650">
 </p>
 <p align="center">
