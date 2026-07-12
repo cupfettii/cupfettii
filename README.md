@@ -1,5 +1,5 @@
 <p align="center">
-  art was made by me ꉂ ꉂ ( ᵔ ᗜ ᵔ ◍ )
+  𝗂𝗍 𝗂𝗌 𝗌𝗎𝗆𝗆𝖾𝗋 𝗍𝗂𝗆𝖾𝖾𝖾ㅤ!ㅤꉂ ꉂ ( ᵔ ᗜ ᵔ ◍ )
 </p>
 <p align="center">
   <img src="Sans titre 206_20260712031641.png" width="650">
