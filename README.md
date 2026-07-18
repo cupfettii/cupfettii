@@ -16,4 +16,4 @@
   </a>
 <p align="center">
 <a href="https://github.com/lermamay1104-hue">ㅤ𝗀𝗈 𝖼𝗁𝖾𝖼𝗄 </a>&nbsp<a
-href="https://github.com/bloominqton"> 𝗍𝗁𝖾𝗂𝗋 𝗉𝗋𝗈𝖿𝗂𝗅𝖾𝗌 ^-^ </a>
+href="https://github.com/c-utesy"> 𝗍𝗁𝖾𝗂𝗋 𝗉𝗋𝗈𝖿𝗂𝗅𝖾𝗌 ^-^ </a>
